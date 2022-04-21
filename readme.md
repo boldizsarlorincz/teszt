@@ -1,1 +1,2 @@
-Boldizsár vagyko, aki soha nem fiogyel!!
+Boldizsár vagyok, aki soha nem figyel!!
+Nick Ferenc
